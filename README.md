@@ -1,3 +1,3 @@
 # Curriculum-vitae
 
-## My CV's in English and Portuguese versions
+## My CV is available in two languages: English and Portuguese
